@@ -1,0 +1,1 @@
+A hunter was venturing out of town, finding animals to hunt. On his way to find, he finds a litle rat stuck in a hole.
