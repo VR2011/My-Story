@@ -1,1 +1,1 @@
-A hunter was venturing out of town, finding animals to hunt. On his way to find animals, he finds a litle rat stuck in a hole.
+A hunter was venturing out of town, finding animals to hunt. On his way to find animals, he finds a litle rat stuck in a hole. He helps the rat get out by putting a bow as a ramp. The rat was happy when he came out.
